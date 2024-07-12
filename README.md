@@ -1,4 +1,3 @@
-# GibhubforDeveloper
-Bird Come See Wow
+## 🚀 About Me
+I have no idea, Who ai I...
 
-# Hello
